@@ -1,6 +1,6 @@
 # 10 Best Web Hosting in India 2026 – Tested & Compared by Experts
 
-**Last Updated:** April 2026 | **Author:** [Your Name], Hosting Infrastructure Consultant | **Reading Time:** 14 min
+**Last Updated:** April 2026 | **Author:** Prahlad Prajapati, Hosting Infrastructure Consultant | **Reading Time:** 14 min
 
 > **Summary:** We tested 10+ Indian and global hosting providers over 90 days across speed, uptime, support response, and real-world pricing. All pricing in this guide is verified as of April 2026. This is data-backed — not affiliate guesswork.
 
